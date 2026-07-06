@@ -1,4 +1,4 @@
-# 
+# Profissional scalping trading bot modelos for Mac OS | Premium scalping trading bot modelos for PC Windows. Featuring negociação de futuros and análise de momento — optimized for maximum performance.
 
 
 
